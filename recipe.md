@@ -1,0 +1,3 @@
+Heat the oven to 350°F. Grease and lightly flour two 9-inch round baking trays or one 13x9x2-inch baking tray.
+Stir together the sugar, flour, cocoa, baking soda, baking powder and salt in a large bowl. Add the eggs, buttermilk, coffee liquid, and vanilla; beat thoroughly (batter should be thin). Pour batter evenly into the prepared baking trays.
+Bake for 30 to 35 minutes for round trays, 35 to 40 minutes for rectangular tray or until a wooden pick inserted in the center comes out clean. Cool in the tray for about 10 minutes then remove from the trays onto wire racks. Cool completely. Decorate as desired.
